@@ -1,4 +1,4 @@
-# Beste Ergometersykkel 2024: Finn Din Favoritt for Effektiv Hjemmetrening
+# Beste Ergometersykkel 2025: Finn Din Favoritt for Effektiv Hjemmetrening
 
 Her er et doument men en kort oppsummering sammenligner https://docs.google.com/spreadsheets/d/17yF1VkBxjj_D5eVaYnVe6HvMsaC6EgZZZoSAUGaXjos/edit?usp=sharing
 
